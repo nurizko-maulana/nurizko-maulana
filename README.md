@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+### Touch Me
+You can touch me on :
+- Email --- nurizko.maulana@gmail.com
+- Instagram --- [@nullinside](https://instagram.com/nullinside)
+- Linkedin --- [@nurizko-maulana](https://www.linkedin.com/in/nurizko-maulana/)
+- Website --- [nurizkomaulana](https://www.nurizkomaulana.site)
+
